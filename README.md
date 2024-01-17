@@ -9,3 +9,7 @@
 ![Biihar3](https://github.com/Churanta/Simply/assets/83538805/2f683474-e5cd-45d1-a69d-9f8bbfa9a2c5)
 ![Biihar2](https://github.com/Churanta/Simply/assets/83538805/30068d69-6ff3-43a8-8833-307f2e652b10)
 ![Biihar1](https://github.com/Churanta/Simply/assets/83538805/1a5bd454-3226-4324-9f97-a72a319eca5c)
+![UP 1](https://github.com/Churanta/Simply/assets/138902724/4578f365-b95c-4bb6-a887-069315b432d2)
+![UP 2](https://github.com/Churanta/Simply/assets/138902724/9ba29bf4-6ce1-4d03-a90a-3c29afb0ab41)
+![UP 3](https://github.com/Churanta/Simply/assets/138902724/7796b388-fdc7-4503-ab1d-a883992caad1)
+![UP 4](https://github.com/Churanta/Simply/assets/138902724/66577a50-c8cd-4fd1-8f0c-908e212564d9)
